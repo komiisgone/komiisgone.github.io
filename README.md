@@ -1,1 +1,0 @@
-# komiisgone.github.io
